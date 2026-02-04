@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi NIGGER 👋
 
 <!--
 **dinosaurusbiru13-coder/dinosaurusbiru13-coder** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
